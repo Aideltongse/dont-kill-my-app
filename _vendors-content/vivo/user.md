@@ -28,7 +28,10 @@ Apps locked in the taskbar are safe from getting terminated when they run on the
   </figure>
 
   <figure>
-    <img src="/assets/img/vivo/vivo_2.jpg">
+    <img src="/assets/img/vivo/v[ng a successful checkout process for gamers - EBANX 2023.pdf](https://github.com/urbandroid-team/dont-kill-my-app/files/15236739/ng.a.successful.checkout.process.for.gamers.-.EBANX.2023.pdf)
+[downloadfile.pdf](https://github.com/urbandroid-team/dont-kill-my-app/files/15236732/downloadfile.pdf)
+[ng a successful checkout process for gamers - EBANX 2023.pdf](https://github.com/urbandroid-team/dont-kill-my-app/files/15236715/ng.a.successful.checkout.process.for.gamers.-.EBANX.2023.pdf)
+ivo_2.jpg">
     <figcaption>2. Tap on the lock icon that appears.</figcaption>
   </figure>
 
